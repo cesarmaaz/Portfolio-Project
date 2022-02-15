@@ -1,7 +1,6 @@
 
 
 
-
 ![PortfolioPicture](https://user-images.githubusercontent.com/81575108/153702509-d1281a9d-5eb7-42d7-98ec-c9d791d08650.png)
 
 
